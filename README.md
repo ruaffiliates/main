@@ -1,5 +1,3 @@
-## Welcome to my Affiliate Page
-##
 ## How to Join
 Watch the video and [Sign up for Free](https://bit.ly/ruaff2017).
 
@@ -77,7 +75,8 @@ So even you are a sleep, you are earning 400 pesos from your Upline sales and sp
 **P.S.: For all my directly sponsored. You can get from me your own:**
 - Free Website (katulad nito)
 - Team Logo “Automatik”
-- Custom Banner. 
+- Custom Banner
+
 **Just PM me at** [facebook](facebook.com/ruaff2017)
 
 ## Support or Contact
