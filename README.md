@@ -74,7 +74,11 @@ Yes, if you were granted the permission to use their social proof 	and content p
 
 So even you are a sleep, you are earning 400 pesos from your Upline sales and sponsored sales. Just copy and paste, promote your link and get paid. The system will do the rest for you.
 
-**P.S.: For all my directly sponsored. You can get from me your Team Logo “Automatik” and custom cover photo. Just PM me at** [facebook](facebook.com/ruaff2017)
+**P.S.: For all my directly sponsored. You can get from me your own:**
+- Free Website (katulad nito)
+- Team Logo “Automatik”
+- Custom Banner. 
+**Just PM me at** [facebook](facebook.com/ruaff2017)
 
 ## Support or Contact
 
