@@ -14,7 +14,7 @@ Happy akong alalayan ka sa iyong concern kung mayroon man.
 
 Dito niyo po mababasa ang lahat na parati tinatanong ng naghahanap ng Online Business. Kung may katanongan kayo na wala dito, feel free to pm me.
 
-```markdown
+
 ##How can I qualify as an RU Affiliate? 	
 To qualify as an RU (Revolution Upgrade) Affiliate:
 
@@ -82,7 +82,6 @@ Yes, if you were granted the permission to use their social proof 	and content p
 **Bold** and _Italic_ and `Code` text
 
 [Link](url) and ![Image](src)
-```
 
 So even you are a sleep, you are earning 400 pesos from your Upline sales and sponsored sales. Just copy and paste, promote your link and get paid. The system will do the rest for you.
 
