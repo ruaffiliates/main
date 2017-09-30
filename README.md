@@ -1,6 +1,5 @@
 ## RU Affiliates
 
-
 ## How to Join
 Watch the video and [Sign up for Free](https://bit.ly/ruaff2017).
 
