@@ -1,3 +1,6 @@
+## RU Affiliates
+
+
 ## How to Join
 Watch the video and [Sign up for Free](https://bit.ly/ruaff2017).
 
@@ -77,7 +80,7 @@ So even you are a sleep, you are earning 400 pesos from your Upline sales and sp
 - Team Logo “Automatik”
 - Custom Banner
 
-**Just PM me at** [facebook](facebook.com/ruaff2017)
+**Add me on Facebook and PM me at** [facebook](facebook.com/ruaff2017)
 
 ## Support or Contact
 
