@@ -64,24 +64,12 @@ Yes, we have library of facebook Ads template and images that you can use and Fr
 Yes, if you were granted the permission to use their social proof 	and content post. No, You need to ask permission first from the 	account owner before using them to your social posts.
  
 ##How do I earn into this Online Business? (My favorite Question) Earning 	here in RU Affiliates is simple. 
->Earn 1000 from your directly sponsored 
->Earn 400 from your sponsored sales (every 3rd sales) 	
->Earn 400 from your upline sales (every 3rd sales) 
->Earn 	additional 200 shared commission from every 3rd directly sponsored 	
+- Earn **1000** from your directly sponsored 
+- Earn **400** from your sponsored sales (every 3rd sales) 	
+- Earn **400** from your upline sales (every 3rd sales) 
+- Earn 	additional **200** shared commission from every 3rd directly sponsored 	
 
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
+![Image](src)
 
 So even you are a sleep, you are earning 400 pesos from your Upline sales and sponsored sales. Just copy and paste, promote your link and get paid. The system will do the rest for you.
 
